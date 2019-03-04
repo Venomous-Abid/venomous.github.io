@@ -1,1 +1,1 @@
-# Just on the Phase on learning.
+# Just on the Phase of learning.
